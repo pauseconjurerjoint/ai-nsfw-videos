@@ -1,4 +1,4 @@
-# 🤖 AI Video Generation – Understanding How AI Creates Videos [2026]
+# 🤖 PORNO AI Video Generation – Understanding How AI Creates Videos [2026]
 
 <p align="center">
   <img src="https://img.shields.io/badge/Downloads-85K+-9B59B6?style=for-the-badge&logo=github" />
